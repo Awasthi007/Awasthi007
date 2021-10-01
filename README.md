@@ -13,7 +13,7 @@
 
 - 👯 I’m looking to collaborate on **Web D projects**
 
-- 📫 How to reach me **awasthi0078here@gmail.com**
+- 📫 How to reach me **awasthi007here@gmail.com**
 
 - ⚡ Fun fact **My sense of humour is too good.**
 
